@@ -28,11 +28,15 @@ So we decided that we want to take a picture of him, because we take a photo on 
 
 We got everything prepared and we were waiting for the perfect time to take THE picture
 
+![Snímek obrazovky (130)](https://github.com/Vojteech/05-storytelling/assets/148872005/f7ccfbb5-04de-43bc-bb65-15abc6d0f9e5)
+
 But then something terrible happened.
 
 We came to our balcony and there was no pigeon, there was just an empty nest with a broken egg. 
 It was obvious that a horrible act of violence happened.
 But we will never find out what happened and more importantly we will never see our pigeon brother again and we will NEVER take the photo of him.
+
+![Snímek obrazovky (131)](https://github.com/Vojteech/05-storytelling/assets/148872005/b2f95365-02e2-4450-b904-7fa866e7db0b)
 
 And it made me realize.
 I do this a lot.
@@ -50,6 +54,10 @@ So I would like to encourage you to not wait too long and to make your ideas rea
 
 Because if you wait too long 
 you might miss your pigeon.
+
+![Snímek obrazovky (137)](https://github.com/Vojteech/05-storytelling/assets/148872005/7f10636b-8540-474c-a5d3-2c6bc56b5513)
+
+
 
 
 <!-- A text transcription of your audio as stand-alone article with images, links, etc. -->
