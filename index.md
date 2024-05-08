@@ -6,7 +6,7 @@ by Vojtech Hanka
 
 - Download [the audio](…) <!-- Optional audio-only — think podcast. -->
 - Download [the slides](assets/surname-title-slides.pdf) <!-- Link to your slides: PDF, Figma, etc. -->
-- Watch [the video](…) (audio + slides)
+- Watch [the video](…)
 
 
 
