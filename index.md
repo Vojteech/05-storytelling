@@ -17,9 +17,12 @@ And we were discussing how mail pigeons worked and how humans domesticated this 
 And now they are this not super sharp, not super smart bird that doesn’t even really know how to build a nest.
 
 Little did we know that couple weeks later we are going to find a pigeon nest on our balcony.
-It started with 3 little sticks and before we had time to realize we had a pigeon nest, a pigeon and a pigeon egg all on your balcony.
+It started with 3 little sticks and before we had time to realize we had a pigeon nest, a pigeon and
+ a pigeon egg all on your balcony.
 
 The beginnings were hard, we had to get used to each other, but over time we gained his trust and this pigeon really became part of your flat, he became our family, our brother.
+
+![Snímek obrazovky (129)](https://github.com/Vojteech/05-storytelling/assets/148872005/f5703a8b-ce4d-43d4-9fb8-6ce495e15019)
 
 So we decided that we want to take a picture of him, because we take a photo on instant camera of everyone that visits our flat. So it was blatantly obvious that this pigeon needs a photo.
 
