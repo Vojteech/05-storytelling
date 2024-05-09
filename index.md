@@ -22,7 +22,7 @@ It started with 3 little sticks and before we had time to realize we had a pigeo
 
 The beginnings were hard, we had to get used to each other, but over time we gained his trust and this pigeon really became part of your flat, he became our family, our brother.
 
-![pigeon_as_assassins_friend](https://github.com/Vojteech/05-storytelling/assets/148872005/64d7c999-54e5-4a3a-925b-ead1b8296373 =250x250)
+![pigeon_as_assassins_friend](https://github.com/Vojteech/05-storytelling/assets/148872005/64d7c999-54e5-4a3a-925b-ead1b8296373=250x250)
 
 So we decided that we want to take a picture of him, because we take a photo on instant camera of everyone that visits our flat. So it was blatantly obvious that this pigeon needs a photo.
 
