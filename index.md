@@ -4,7 +4,7 @@ by Vojtech Hanka
 
 2024
 
-- Download [the audio](…) <!-- Optional audio-only — think podcast. -->
+- Download [the audio](assets/Hanka_DoNotPostponeIt_Slides.pdf) <!-- Optional audio-only — think podcast. -->
 - Download [the slides](assets/Hanka_DoNotPostponeIt_Slides.pdf) <!-- Link to your slides: PDF, Figma, etc. -->
 - Watch [the video](…)
 
