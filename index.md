@@ -22,13 +22,15 @@ It started with 3 little sticks and before we had time to realize we had a pigeo
 
 The beginnings were hard, we had to get used to each other, but over time we gained his trust and this pigeon really became part of your flat, he became our family, our brother.
 
-![Pigeon as a brother](https://github.com/Vojteech/05-storytelling/assets/pigeon_as_assassins_friend)
+![pigeon_as_assassins_friend](https://github.com/Vojteech/05-storytelling/assets/148872005/64d7c999-54e5-4a3a-925b-ead1b8296373)
 
 So we decided that we want to take a picture of him, because we take a photo on instant camera of everyone that visits our flat. So it was blatantly obvious that this pigeon needs a photo.
 
 We got everything prepared and we were waiting for the perfect time to take THE picture
 
-![Snímek obrazovky (130)](https://github.com/Vojteech/05-storytelling/assets/148872005/f7ccfbb5-04de-43bc-bb65-15abc6d0f9e5)
+
+![pigeon_polaroid_photo](https://github.com/Vojteech/05-storytelling/assets/148872005/cef0ffc3-116c-4da4-9630-4f02b66f2fba)
+
 
 But then something terrible happened.
 
@@ -36,7 +38,8 @@ We came to our balcony and there was no pigeon, there was just an empty nest wit
 It was obvious that a horrible act of violence happened.
 But we will never find out what happened and more importantly we will never see our pigeon brother again and we will NEVER take the photo of him.
 
-![Snímek obrazovky (131)](https://github.com/Vojteech/05-storytelling/assets/148872005/b2f95365-02e2-4450-b904-7fa866e7db0b)
+![drawing_of_crying_pigeon](https://github.com/Vojteech/05-storytelling/assets/148872005/df27875b-f77a-4cf5-a64d-5e4221b16385)
+
 
 And it made me realize.
 I do this a lot.
@@ -55,8 +58,7 @@ So I would like to encourage you to not wait too long and to make your ideas rea
 Because if you wait too long 
 you might miss your pigeon.
 
-![Snímek obrazovky (137)](https://github.com/Vojteech/05-storytelling/assets/148872005/7f10636b-8540-474c-a5d3-2c6bc56b5513)
-
+![sitting_pigeon_silhouette](https://github.com/Vojteech/05-storytelling/assets/148872005/811db783-e1fa-4a19-9851-b59eca670878)
 
 
 
