@@ -6,7 +6,7 @@ by Vojtech Hanka
 
 - Download [the audio](assets/Hanka_DoNotPostponeIt_Audio.m4a)
 - Download [the slides](assets/Hanka_DoNotPostponeIt_Slides.pdf)
-- Watch [the video](…)
+- Watch [the video](assets/Hanka_DoNotPostponeIt_Video.mp4)
 
 Hey, Im Vojtech and i decided to talk about postponing things that you want to do because i recently realized i do that a lot.
 
